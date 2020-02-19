@@ -1,1 +1,1 @@
-Hello! This is the extension creator! Hope you are doing well :)
+Hello! This is the extension creator! The script is working! Hope you are doing well! Try not to abuse of this script, please respect the creators of flyordie.io. Donate to flyordie.io by buying gems here : https://flyordie.io/payments/buy.php?id=4
