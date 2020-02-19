@@ -1,1 +1,1 @@
-tinyurl.com/hackflrd
+ur mum gay
