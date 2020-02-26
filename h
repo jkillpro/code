@@ -1,1 +1,1 @@
-http://is.gd/flyhack
+https://v.gd/flyhack
